@@ -1,0 +1,1 @@
+Next tomorrow is Friday
